@@ -1,2 +1,2 @@
-I am a very super girl.
-Where should I go.
+I am very happy.
+He is not here.
