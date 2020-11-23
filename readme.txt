@@ -1,3 +1,3 @@
-I am very happy.
-He is not here
-Oh My God
+iiidddd
+Why cant delete the word 
+
